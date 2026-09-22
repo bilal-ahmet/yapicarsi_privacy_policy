@@ -1,1 +1,0 @@
-# yapicarsi_privacy_policy
